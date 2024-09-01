@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sayantan
 - 👀I’m interested in Coding(especially Java)
-- 🌱 I’m currently learning C and Python (!st year of uni)
+- 🌱 I’m currently learning C and Python (1st year of uni)
 - 💞️ I’m looking to collaborate on ??
 - 📫 How to reach me - bag.sayantan123@gmail.com
 - 😄 Pronouns: He/His
