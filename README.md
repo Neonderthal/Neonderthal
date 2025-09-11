@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ??
 - 📫 How to reach me - bag.sayantan123@gmail.com
 - 😄 Pronouns: He/His
-- ⚡ Fun fact:Coding makes me feel butterflies in my stomach until I see pointers and weird patterns T-T
+- ⚡ Fun fact:Coding makes me calm until I see pointers and weird patterns T-T
 - Aspire to creat a successful app dev corporation of my own
 - Hobbies: Readinng/writing stories , playing quizzes and gaming
 
